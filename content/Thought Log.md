@@ -1,0 +1,1 @@
+- As the title of this page indicates, I hope to log my thoughts that might be relevant, and interesting to the readers of this page. This might even be an interesting experiment to track how my thoughts shape over time.
