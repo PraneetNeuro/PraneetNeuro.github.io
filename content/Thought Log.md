@@ -1,2 +1,0 @@
-- [Jul 31, 2024] As the title of this page indicates, I hope to log my thoughts that might be relevant, and interesting to the readers of this page. This might even be an interesting experiment to track how my thoughts shape over time.
-- [Aug 1, 2024] I'm really confused, and to a certain extent disappointed with how the 2024 Paris Olympics is being held. Sometimes, I feel it is right to be right.
